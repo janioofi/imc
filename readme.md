@@ -1,2 +1,2 @@
 
-## Link: https://jan1ooo.github.io/imc/
+## Link: https://janioofi.github.io/imc/
